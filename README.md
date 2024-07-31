@@ -9,7 +9,7 @@
 
 91黑料网永久地址https://51bl.cool/
 
-【强烈推荐】加入51爆料公告频道：https ://t.me/https_51bl_fun1
+【强烈推荐】加入51爆料公告频道： https ://t.me/https_51bl_fun1
 
 51爆料TG官方群https://t.me/baoliao_51
 
