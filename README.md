@@ -7,7 +7,7 @@
 
 51爆料备用域名2： https://51bl16.com/
 
-91黑料网永久地址https://51bl.cool/
+51爆料网永久地址https://51bl.cool/
 
 【强烈推荐】加入51爆料公告频道： https ://t.me/https_51bl_fun1
 
