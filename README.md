@@ -9,11 +9,11 @@
 
 51爆料网永久地址https://51bl.cool/
 
-【强烈推荐】加入51爆料公告频道： https ://t.me/https_51bl_fun1
+【强烈推荐】加入51爆料公告频道： https://t.me/https_51bl_fun1
 
 51爆料TG官方群https://t.me/baoliao_51
 
-加入微信扣扣粉丝群https://wybl5.com /?path=/qun.html
+加入微信扣扣粉丝群https://wybl5.com/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系https://t.me/heilio91w
 
